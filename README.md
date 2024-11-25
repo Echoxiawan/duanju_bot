@@ -7,6 +7,5 @@
 # 关注公众号：behappyricher
 ![image](https://github.com/user-attachments/assets/ed94caba-bec9-47af-9ae4-3d1ac4a6ba42)
 
-# 联系作者个人微信：miaolemon888
-![image](https://github.com/user-attachments/assets/8bff170a-5965-482d-8668-5887c5da5994)
+
 
